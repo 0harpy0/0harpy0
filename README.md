@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @0harpy0
-- 👀 I’m interested in music,art,coding and games
+- 👋 Hello, I’m @0harpy0
+- 👀 I’m interested in music, art, coding and games
 - 📫 How to reach me: just talk to me
 - ⚡ Fun fact: i like games like: psychopomp by karbonic and oneshot
 
